@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🪛 About Me:
 Computer Engineering student at Kharazmi University of Tehran.
 
 ## 🌐 Socials:
